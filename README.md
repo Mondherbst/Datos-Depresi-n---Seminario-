@@ -1,1 +1,1 @@
-# Datos-Depresi-n---Seminario-
+# Datos-Depresion-Seminario-
